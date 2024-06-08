@@ -38,7 +38,7 @@ Round cake 8 inch diameter - 45RM
 Round cake 10 inch diameter - 52RM
 
 Price:
-Per people for 1 hours - 10 RM
+For each people for per hour - 10 RM
 More than 5 people will get 5% off
 
 
