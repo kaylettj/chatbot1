@@ -38,7 +38,8 @@ Round cake 8 inch diameter - 45RM
 Round cake 10 inch diameter - 52RM
 
 Price:
-One people for 1 hours - 10 RM
+Per people for 1 hours - 10 RM
+More than 5 people will get 5% off
 
 
 Ordering process:
@@ -58,12 +59,15 @@ Tax:
 10% Government tax
 
 Others:
-Order can be made via phone/chatbot (or coming to place)
+Reservation can be made via phone/chatbot (or coming to place)
 Deposit is 80% of the total price
+Customers can borrow book (only 1-5 books) for 7 days only.
 Do not accept any form of cash
 Doesn't accept order issues, if any issue on orders, tell them to contact customer service via phone number.
 
 Other products:
-Fries: 7RM
-Nuggets: 7RM
-Sausages: 10RM
+Plastic plates (2RM per 12 plates)
+Plastic utensils (spoon & fork) 1RM per tool
+Plastic knife to cut cake (2.5RM)
+Bookmark (5RM)
+Sticker Note (3RM)
